@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kanjabung
-- 👀 I’m interested in nothing
+- 👀 I’m interested in nothing mantab
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ..ok.mantap bosku
